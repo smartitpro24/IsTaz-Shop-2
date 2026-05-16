@@ -1,1 +1,0 @@
-# IsTaz-Shop-2
